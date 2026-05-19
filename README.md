@@ -15,8 +15,7 @@ $\color{#A699BC}{\textsf{" Look at you, cool guy, got it. " }}$
 
 $\color{#A699BC}{\textsf{me and the remus }}$
 
-[rentry](https://rentry.co/connorbot) $\color{#A699BC}{\textsf{៸៸៸ }}$
-[straw](https://connorbot.straw.page) $\color{#A699BC}{\textsf{៸៸៸ }}$
+
 [ata](https://angelicghoul.atabook.org) $\color{#A699BC}{\textsf{៸៸៸ }}$
 [xtra](https://haimiinterests.straw.page) $\color{#A699BC}{\textsf{៸៸៸ }}$
 [friends](https://meandmyfriendos.straw.page)
