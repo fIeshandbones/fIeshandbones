@@ -8,7 +8,8 @@
 
 $\color{#A699BC}{\textsf{" Look at you, cool guy, got it. " }}$
 
-<img width="641" height="330" alt="image" src="https://github.com/user-attachments/assets/aa9ddb4e-f134-4d91-a70d-382959af2cd7" />
+<img width="641" height="330" alt="image" src="https://github.com/user-attachments/assets/c5958794-4fe8-424e-9fcd-d77bb397540d" />
+
 
 
 $\color{#A699BC}{\textsf{me and the remus }}$
