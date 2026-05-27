@@ -1,26 +1,25 @@
-
-<img width="500" height="116" alt="image" src="https://github.com/user-attachments/assets/34d10017-d3e5-4522-8bf2-5918a1c8ccb7" />
-
+<img width="1280" height="234" alt="image" src="https://github.com/user-attachments/assets/0dc6ddaa-3659-40ba-9439-34a8a1c96eb9" />
 
 
 
 <div align="center">
 
-$\color{#A699BC}{\textsf{" Look at you, cool guy, got it. " }}$
+$\color{#B13F2D}{\textsf{" Gentle angel. " }}$
 
-<img width="641" height="330" alt="image" src="https://github.com/user-attachments/assets/c5958794-4fe8-424e-9fcd-d77bb397540d" />
-
-
-[@main](https://github.com/cyberIife) [@remus](https://github.com/Iostromance)
-
-$\color{#A699BC}{\textsf{me and the remus }}$
+<img width="494" height="505" alt="image" src="https://github.com/user-attachments/assets/657e031d-839e-4de9-84bf-421426a23749" />
 
 
-[ata](https://angelicghoul.atabook.org) $\color{#A699BC}{\textsf{៸៸៸ }}$
-[xtra](https://haimiinterests.straw.page) $\color{#A699BC}{\textsf{៸៸៸ }}$
+
+[@main](https://github.com/cyberIife) 
+
+$\color{#B13F2D}{\textsf{“ You kissed me, just to kiss me. “ }}$
+
+
+[ata](https://angelicghoul.atabook.org) $\color{#B13F2D}{\textsf{៸៸៸ }}$
+[xtra](https://haimiinterests.straw.page) $\color{#B13F2D}{\textsf{៸៸៸ }}$
 [friends](https://meandmyfriendos.straw.page)
 
 <p align="center">
 
+<img width="1280" height="234" alt="image" src="https://github.com/user-attachments/assets/ead5fb09-e572-4dde-846b-df36af0226cc" />
 
-<img width="500" height="116" alt="image" src="https://github.com/user-attachments/assets/5be39921-52dc-4eda-aafc-98c7b6310ea9" />
