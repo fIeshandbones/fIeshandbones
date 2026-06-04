@@ -16,7 +16,6 @@ $\color{#B13F2D}{\textsf{“ You kissed me, just to kiss me. “ }}$
 
 
 [ata](https://angelicghoul.atabook.org) $\color{#B13F2D}{\textsf{៸៸៸ }}$
-[xtra](https://haimiinterests.straw.page) $\color{#B13F2D}{\textsf{៸៸៸ }}$
 [friends](https://meandmyfriendos.straw.page)
 
 <p align="center">
