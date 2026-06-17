@@ -4,18 +4,19 @@
 
 <div align="center">
 
-$\color{#B13F2D}{\textsf{" Gentle angel. " }}$
+$\color{#ffffff}{\textsf{" Gentle angel. " }}$
+<img width="484" height="515" alt="image" src="https://github.com/user-attachments/assets/3def46b5-62ea-436e-826a-8658dc9149a9" />
 
-<img width="494" height="505" alt="image" src="https://github.com/user-attachments/assets/657e031d-839e-4de9-84bf-421426a23749" />
+
 
 
 
 [@main](https://github.com/cyberIife) 
 
-$\color{#B13F2D}{\textsf{“ You kissed me, just to kiss me. “ }}$
+$\color{#ffffff}{\textsf{“ You kissed me, just to kiss me. “ }}$
 
 
-[ata](https://angelicghoul.atabook.org) $\color{#B13F2D}{\textsf{៸៸៸ }}$
+[ata](https://angelicghoul.atabook.org) $\color{#ffffff}{\textsf{៸៸៸ }}$
 [friends](https://meandmyfriendos.straw.page)
 
 <p align="center">
