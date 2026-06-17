@@ -16,7 +16,8 @@ $\color{#ffffff}{\textsf{“ You kissed me, just to kiss me. “ }}$
 
 
 [ata](https://angelicghoul.atabook.org) $\color{#ffffff}{\textsf{៸៸៸ }}$
-[friends](https://meandmyfriendos.straw.page)
+[friends](https://meandmyfriendos.straw.page) $\color{#ffffff}{\textsf{៸៸៸ }}$
+[rentry](https://rentry.co/lilypotterevans)
 
 <p align="center">
 
