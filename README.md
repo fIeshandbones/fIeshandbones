@@ -1,4 +1,3 @@
-<img width="1280" height="234" alt="image" src="https://github.com/user-attachments/assets/0dc6ddaa-3659-40ba-9439-34a8a1c96eb9" />
 
 
 
@@ -21,5 +20,4 @@ $\color{#ffffff}{\textsf{“ You kissed me, just to kiss me. “ }}$
 
 <p align="center">
 
-<img width="1280" height="234" alt="image" src="https://github.com/user-attachments/assets/ead5fb09-e572-4dde-846b-df36af0226cc" />
 
